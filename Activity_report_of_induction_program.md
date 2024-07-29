@@ -31,26 +31,22 @@ on the fifth day, First I attend English activity classes which is by Pancham my
 ## Day 6
 First I attend the UHV(Universal human values) class, In which teacher taught us about the self and another self. They tells us the meaning of Competence that is ability to do a task. They get some real life examples for ease in explaination like how we beahave in home and how in public and else. After this I have a math class where teacher asked basic maths questions of integration to the students and lastly day was ended.
 ## Day 7
-7th day of induction
-NCC
-NSS
+On seventh day, Dr. Harwinder Singh(ANO) inspired us about the significance of NCC and it’s values. He gave us knowledge about what is NCC. He explained us that NCC (National Cadet Corps) is a Tri-Services Organisation comprising the Army, Navy and Air Force, engaged in grooming the youth – ‘The Leaders of Tomorrow’ – into disciplined and patriotic citizens. As a voluntary organization, NCC is administered through the Ministry of Defence. Afterwards, there was the turn of our next speaker Coordinator - NSS Er. Jasvir Singh Grewal.
+
+He introduces us about the purpose of NSS society and the work being done by the NSS society of the college campus. NSS provides the opportunity to serve the society and to save the environment by planting trees and cleaning waste. Planting tree help in improving the Air Quality Index (ATQ) of the environment.
 
 ## Day 8
-8th day of induction
-Er. Kanwardeep Kalra mam
-Jaswinder Singh sir who is incharge of IAPT(Indian Associaton of Physics Teachers)
-department visit
-
+Firstly, Er. Kanwardeep Kalra mam who works in corporate sector very well tells the students about the importance of communication skills in the corporate sector she tells that it Boost employee morale, engagement, productivity, and satisfaction, Improve relationships with managers, coworkers, and customers, Help convey your point quickly and clearly , Enhance your professional image
+Encourage active listening and open-mindedness and else. After that, Jaswinder Singh sir who is incharge of IAPT(Indian Associaton of Physics Teachers) told the students about the physics power. How physics important in our life and they get a student from the audiance and do different activities. I enjoy all these. After that, we will go to department visit and the day was ended
 ## Day 9
-9th day of Induction program
-Dr.S.B. singh
-Dr.Pushpinder singh
-causmic club
+First, Dr.S.B. singh  tell all the students to get a page from your notebook and they ask students to write things like your name, roll number and various question about ourself. Afterthat, they collect the pages from the students and tell students about a story of rabit and totooius and he says *"NO TENSION FULL ATTENTION"* .After that Dr.Pushpinder singh sir comes and give speech and ask students that what is your learning method he told us about different learning methods :
+- Auditory learning
+- learn by writing
+- comfortable in both auditory and writing
+
+AFter that, causmic club students come and give students knowledge about causmic club and tell the benfits of it and atlast, the day was ended
 ## Day 10
-10th day of the Induction
-Maths 
-peer interaction
-SC students interation with Dr. Parminder singh
+First,In math class teacher taught us about the basics of integration like integration by parts and partial fraction. After that we have a peer interaction lecture where our senoir told us about the college. At the end the was a auditorium period of only SC students where Dr. Parminder singh come and tell the all information about the PMS (post matric scholarship to the students) and students can ask different questions from the sir and in this way the day was ended.
 ## Day 11
 on the eleventh day,Firstly Mr. Gauravdeep Singh come in auditorium,he is the founder of initiaters of the change. He is very nice personality. He tell us his story that he is fail in class 12 in science stream. He says that on the time of his exams they do group studies but there group studies are something unique. They tell that they play cricket for a hour and then in a break they do studies. he told us three mantras:
 
