@@ -29,9 +29,7 @@ After that our senior of fouth year from mechanical department Mr Pancham told a
 ## Day 5
 on the fifth day, First I attend English activity classes which is by Pancham my senior. In this English activity 10 students from the first row are selected and they ask to make a semi-circle with their chairs and A person one by one come and give speech on any topic for 3 minutes in front of semi-circle. Each and every student come and do their speech after that ask to do this activity again and we all see that when we do this activity again we can do speech better than earlier and in this way we learn to speak in public After this english activity class we have a math class In which teacher taught us about the basics of integration and differenciation and the day in college was end
 ## Day 6
-On the sixth day
-uhv
-maths
+First I attend the UHV(Universal human values) class, In which teacher taught us about the self and another self. They tells us the meaning of Competence that is ability to do a task. They get some real life examples for ease in explaination like how we beahave in home and how in public and else. After this I have a math class where teacher asked basic maths questions of integration to the students and lastly day was ended.
 ## Day 7
 7th day of induction
 NCC
