@@ -1,9 +1,18 @@
 # MY INDUCTION PROGRAM REPORT
 ## Day 1
-
+The First day of my college, is started in College Guruduwara Sahib where I listen to kirtan which flies my nervousness into heavean and After that Pr. Dr. Sehijpal Singh Welcome all the students in GNDEC campus and tell the students about the campus facility and benefits. IAS Harleen parmar is invited as a cheif guest. Many other peoples arrive their  and do their speeches and motivate students to do hard work and enjoyment in your four years of college journey, And after all the speeches the Induction program of day one ended.
 ## Day 2
-On this day firstly Dr. Arvind dhingra sir come on stage and they tell us about various socities and clubs like Data scince club, Parwaaz club, ITian club, ISHRAI, PFA, TSTE, SAE and many others.They get 22 students from the auditorium and perform a strategy game and after that, every student can introduce yourself. Sir tells us that "The best music in the world is our heart beat.
-They taught us about different types of memberships like Member, active member, executive member, office bearer. After this, Dr. Parminder singh comes, they tells us about NCC and NSS and other events. They also tell us about sports facility for physical activities and workshops. At the end Dr. H.S. Rai sir comes, he tell students about 3ps for success first is passion, second is persistence and third is Patience
+On this day firstly Dr. Arvind dhingra sir come on stage and they tell us about various **socities** and **clubs** like Data scince club, Parwaaz club, ITian club, ISHRAI, PFA, TSTE, SAE and many others.They get 22 students from the auditorium and perform a strategy game and after that, every student can introduce yourself. Sir tells us that *"The best music in the world is our heart beat"*.
+They taught us about different types of memberships :
+1. Member
+2. Active member
+3. executive member
+4. office bearer
+   
+After this, Dr. Parminder singh comes, they tells us about NCC and NSS and other events. They also tell us about sports facility for physical activities and workshops. At the end Dr. H.S. Rai sir comes, he tell students about 3ps for success-
+1. Passion
+2. Persistance
+3. Patience
 ## Day 3
 On third day of Induction program, we attend classes of math and UHV (Universal human values).In Maths class teacher taught us about some basics of 
 integration like partial fraction and integration by parts. My UHV class is attended by Prof.Jasmine in which they teach us about value education, Why we need 
@@ -18,7 +27,7 @@ On the fourth day of Induction program, firstly randhir sir tell all of us about
 After that our senior of fouth year from mechanical department Mr Pancham told all of us about communcation kills, how peoples react and how their body language in different situations.
 
 ## Day 5
-on the fifth day, First I attend English activity classes,
+on the fifth day, First I attend English activity classes which is by Pancham my senior. In this English activity 10 students from the first row are selected and they ask to make a semi-circle with their chairs and A person one by one come and give speech on any topic for 3 minutes in front of semi-circle. Each and every student come and do their speech after that ask to do this activity again and we all see that when we do this activity again we can do speech better than earlier and in this way we learn to speak in public After this english activity class we have a math class In which teacher taught us about the basics of integration and differenciation and the day in college was end
 ## Day 6
 On the sixth day
 uhv
